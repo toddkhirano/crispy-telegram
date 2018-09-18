@@ -1,2 +1,3 @@
 # crispy-telegram
 Comin' at ya HOT like a crispy telegram...
+What's up, everyone! Todd here. I feel like I'm drowing constantly. More later.
